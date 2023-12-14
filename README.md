@@ -1,1 +1,1 @@
-# Wyk-ad_specjalizujacy
+# Wykład_specjalizujący
